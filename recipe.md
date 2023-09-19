@@ -17,3 +17,4 @@
 6. Mix in a handful of chocolate chunks for extra indulgence. 
 7. Line the bottom of the baking pan with parchment paper for easy cake removal. 
 8. Pour the batter into a greased and floured 9x13-inch baking pan.
+9. Add confetti. Amazing.
